@@ -1,4 +1,4 @@
-## I didnnot mkae this script.
+## I did not make this script.
 
 
- I will add a tutorial.
+ I will add a tutorial later.
