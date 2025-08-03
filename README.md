@@ -1,4 +1,4 @@
-I do not make this shout out to TJ LOL bro.
+## I didnnot mkae this script.
 
 
  I will add a tutorial.
